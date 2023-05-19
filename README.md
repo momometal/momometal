@@ -1,6 +1,6 @@
 Centi/victoria or alys lover of coding, music, & roblox
 
-i no longer play ponytown and i dont see my self ever logging on again :) im active on neocities and discord [my neocities](centis.neocities.org)
+i no longer play ponytown and i dont see my self ever logging on again :) im active on neocities and discord [my neocities](https://centis.neocities.org)
 
 
 
